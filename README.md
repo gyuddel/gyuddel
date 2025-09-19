@@ -1,2 +1,5 @@
-<img width="735" height="556" alt="image" src="https://github.com/user-attachments/assets/8cbc8bdb-63ac-4931-9164-cebde2533acb" />
 
+
+<img width="655" height="597" alt="image" src="https://github.com/user-attachments/assets/7253c915-cf96-4100-aaca-62321c053bb9" />
+
+i love the major from the hit manga hellsing
