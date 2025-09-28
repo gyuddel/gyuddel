@@ -1,5 +1,3 @@
+![04656-00220-00005-3](https://github.com/user-attachments/assets/c0972a84-6b2b-4787-a89c-412f463daf97)
 
 
-<img width="655" height="597" alt="image" src="https://github.com/user-attachments/assets/7253c915-cf96-4100-aaca-62321c053bb9" />
-
-i love the major from the hit manga hellsing
